@@ -20,7 +20,7 @@
 ---
 
 ## 🌐 Connect With Me  
-- 💼 [LinkedIn]([https://linkedin.com/in/your-link](https://www.linkedin.com/in/dhruvi-mevada-b85778292/))   
+- 💼 [LinkedIn](https://www.linkedin.com/in/dhruvi-mevada-b85778292/)
 - 📧 Email: dhruvimevada21@gmail.com  
 
 
